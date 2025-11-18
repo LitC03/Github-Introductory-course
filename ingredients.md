@@ -3,3 +3,4 @@
 * 2 tsp salt
 * 1 clove of garlic, chopped
 * 0 tsp coriander - no soap for us!
+* chillies to taste
